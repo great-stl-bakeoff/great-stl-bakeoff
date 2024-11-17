@@ -1,2 +1,2 @@
-# Will be updated at 9pm eastern!
+# Will be updated at 9:30pm eastern!
 
